@@ -1,0 +1,2 @@
+# MIneCraftModScraps
+Ideas and stuff
